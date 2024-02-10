@@ -1,4 +1,6 @@
-### Hi there 👋
+### i be on here coding and shit
+
+[im broke](https://www.buymeacoffee.com/enimmy)
 
 <!--
 **Nimmy2222/Nimmy2222** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
